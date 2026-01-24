@@ -1,1 +1,0 @@
-# tap-type-privacy-policy
